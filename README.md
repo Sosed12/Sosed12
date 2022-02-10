@@ -1,10 +1,8 @@
-- 👋 Hi, I’m @Sosed12
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Привет я сосед 12 
+Меня интересует подписка на группу прослушка плей листа и прослушка плей листа 
 
-<!---
-Sosed12/Sosed12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+https://vk.com/music?z=audio_playlist609427859_44/0456aa876d7f96054e
+
+Група называется так же как и пользовател который создаёт мызыку
+
+И в группе есть беседа в неё тоже вступаем
